@@ -1,0 +1,1 @@
+# MINOR_CM_ALWIN_32
